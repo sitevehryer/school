@@ -1,7 +1,10 @@
+common 
+      place 29348992987 2 0982 0978 07892 08972 0987 0897238 908 290392ipo3noi p2n 3ipo4 ipo2 iop3 io234 
+
 is it 
    ht it 
 it  
-  is 
+  is    ht common 2384 87278990829080299p2ioiop2 inop oi2inpo nopi23 niop2 onpi34n io23i o4 iop2 pio234
 it
 
 it is cooler where your are coio23 io2  827982978 2 8 8972 9780 70289 70892 7098 70928 09782 980 oi2 i
